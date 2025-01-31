@@ -1,16 +1,11 @@
-## Hi there 👋
+Socials: Discord | mech___ | 
+Steam | SM_mech | 
+Val | plat 1 peak | 
+Mech#Star | 
+OSU!Mania | Mech_ | 
+HSR | UID: 618189834 | 
+You can also follow my Twitter, but I don't post | @mech____ | 
+YT | https://www.youtube.com/@ShawneeMissionEastRobotics | 
+IG | @smerobotics | I don't run the account, some freshman do | The account doesn't even follow me :(
 
-<!--
-**SM-mech/SM-mech** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+If you have any question message my discord since I check that often. Also message me about improvements if you notice anything.
